@@ -1,3 +1,3 @@
-## Lin's blog
+## Thinking about what to write down here
 
 Coming soon...
