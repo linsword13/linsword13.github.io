@@ -1,3 +1,3 @@
-## Thinking about what to write down here
+## Home
 
 Coming soon...
